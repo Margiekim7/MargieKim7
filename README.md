@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MargieKim7
-- 👀 I’m interested in bikes and coding
+- 👀 I’m interested in coding and currently learning web development.
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me: 𝕏 @Rgiekim_ 
