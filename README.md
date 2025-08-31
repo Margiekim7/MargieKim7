@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and currently learning web development.
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me: 𝕏 @Rgiekim_ 
+- 📫 How to reach me: 𝕏 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: 7 is my lucky number.
 
